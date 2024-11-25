@@ -1,1 +1,1 @@
-# quimica-certo
+# resenha da serie
